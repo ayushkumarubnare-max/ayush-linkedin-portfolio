@@ -1,0 +1,2 @@
+# ayush-linkedin-portfolio
+Resum 
